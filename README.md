@@ -1,1 +1,0 @@
-Lladoc, Eadward Andrei D.
